@@ -9,7 +9,7 @@
 
 ### Find me here:
 <p align="left">
-<a href="https://www.instagram.com/sobolevska.m" target="blank"><img align="center" src="https://user-images.githubusercontent.com/102872572/161638065-51edd7d0-7486-4e15-8f7a-a65034a809c9.png" alt="" height="30" /></a>
+<a href="https://www.instagram.com/sobolevska.m" target="blank"><img align="center" src="https://user-images.githubusercontent.com/102872572/161640519-35219033-a4e9-4913-ab87-5e896ed5da4a.png" alt="" height="30" /></a>
 
   <img align="right" width="150" height="120" src="https://user-images.githubusercontent.com/102872572/161638775-afc8a60e-9059-4f68-9e85-d1cf9bdc7f74.gif"></a>
 ### Have a nice day!
